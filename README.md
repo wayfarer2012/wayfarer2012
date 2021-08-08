@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @wayfarer2012
+- 👀 I’m interested in wow
+- 🌱 I’m currently learning this
+- 💞️ I’m looking to collaborate on is
+- 📫 How to reach me new
